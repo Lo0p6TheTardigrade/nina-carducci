@@ -1,1 +1,10 @@
-# nina-carducci
+
+# Nina Carducci
+
+Photographe indépendant,
+
+
+## Optimizations
+
+SEO
+
